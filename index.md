@@ -1,6 +1,6 @@
-## Welcome to Ryke
+## Welcome to FuMu
 
 
-### verb
+### Acronym. 
 
-to smoke, steam · to break, snap, tear · to fall (suddenly) ...
+Definition. FUMU. Foul Up Move Up (polite form, make a big mistake and get promoted for it)
